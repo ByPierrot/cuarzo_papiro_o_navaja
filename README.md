@@ -1,0 +1,1 @@
+Juego caca de cuarzo papiro o navaja 
